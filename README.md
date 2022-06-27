@@ -6,7 +6,7 @@ In a strip of a straight road, what possibly can go wrong?
 ![1](Screenshots/5.png)
 ---------------
 
-### Our puny cars trempling
+### Our puny cars Trembling
 ![2](Screenshots/1.png)
 ---------------
 
