@@ -2,7 +2,7 @@
 
 In a strip of a straight road, what possibly can go wrong?
 
-### Haha, Destructions
+### Haha, Destruction
 ![1](Screenshots/5.png)
 ---------------
 
